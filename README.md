@@ -30,7 +30,7 @@ Many people lack awareness about nutrition, exercise, hydration, and mental well
 
 ## Author
 
-[Friend Name]
+Prachita Ravindra Bhoir
 
 ## Status
 
